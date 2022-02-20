@@ -1,2 +1,0 @@
-# gwangryeollee
-# gwangryeollee
